@@ -1,1 +1,1 @@
-# club2022.github.io
+# kokusai2022bunkasai.github.io
